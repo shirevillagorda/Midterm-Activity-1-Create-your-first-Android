@@ -1,1 +1,0 @@
-# Midterm-Activity-1-Create-your-first-Android
